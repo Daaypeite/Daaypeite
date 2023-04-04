@@ -2,8 +2,8 @@
 
  ° 💻 Dev. Junior Backend
 
- ° Uma amadora no mundo da Tecnologia
+ ° 🤓 Uma amadora no mundo da Tecnologia
  
-° Terceiro período em Analise e Desenvolvimento de Sistema
+° 📚 Terceiro período em Analise e Desenvolvimento de Sistema
  
 ° Contate-me no E-mail: daiane.peite@hotmail.com❤️🌱📫

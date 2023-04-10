@@ -6,4 +6,4 @@
  
 ° 📚 Terceiro período em Analise e Desenvolvimento de Sistema
  
-° Contate-me no E-mail: daiane.peite@hotmail.com❤️🌱📫
+° Contate-me pelo E-Mail: daiane.peite@hotmail.com❤️🌱📫

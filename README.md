@@ -2,7 +2,7 @@
 
  ° 💻 Dev. Junior Backend
  
- ° 🌱 Spring/Node/Angular
+ ° 🌱 Spring/Node
 
  ° 🤓 Uma amadora no mundo da Tecnologia
  
